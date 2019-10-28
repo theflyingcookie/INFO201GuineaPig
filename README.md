@@ -1,7 +1,5 @@
 # INFO201GuineaPig
-owo
-
-owo
 uwu
+<<<<<<< HEAD
 iwi
 dont get rid of my owos >:(
