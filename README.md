@@ -1,2 +1,4 @@
 # INFO201GuineaPig
-uwu1
+uwu
+iwi
+dont get rid of my owos >:(
